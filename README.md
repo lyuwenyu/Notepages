@@ -1,2 +1,0 @@
-# lyuwenyu.github.io
-Note
